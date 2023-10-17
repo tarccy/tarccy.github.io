@@ -16,13 +16,15 @@ Education
 
 Work experience
 ======
+
   
 Skills
 ======
 
+
+
 Publications
 ======
+
   
-  
-Service and leadership
-======
+
